@@ -7,3 +7,5 @@ GIT Beginner Course : Thomas Claudius Huber
 
 It has 7 video modules.
 
+My Professional email id : ananyapro30@gmail.com
+
